@@ -1,0 +1,1 @@
+# Cultura-Organizacional-SKECHERS-4.0
